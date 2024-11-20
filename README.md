@@ -25,7 +25,7 @@ Commitment to Innovation and Excellence
 “Our mission is to deliver certified products that our customers can rely on,” said the spokesperson. “We continuously innovate and refine our processes to ensure we remain at the forefront of the industry as a leading AC adapter factory and power adapter manufacturer.”
 
 Explore Certified Solutions with Oushangmei
-To learn more about Oushangmei’s certified products or to place an order, visit www.poweradapter-manufacturers.com.
+To learn more about Oushangmei’s certified products or to place an order, visit https://www.poweradapter-manufacturers.com/
 
 About Oushangmei Technology Co., Ltd.
 Oushangmei Technology Co., Ltd. is a renowned power adapter manufacturer with over 12 years of experience. Based in Shenzhen, China, the company specializes in producing high-quality AC adapters and power supplies that meet international safety and performance standards. With certifications like UL, CE, and KC, Oushangmei is a trusted partner for clients seeking dependable power solutions.
